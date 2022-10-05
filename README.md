@@ -1,0 +1,1 @@
+Mans pirmaijs git projekts
